@@ -11,6 +11,8 @@
 
 - 📫 Reach out to me at **edliu070317@gmail.com**
 
+- 📅 Book a chat [here](https://calendly.com/edliu070317/30mins)
+
 - 📄 Know about my experiences [https://drive.google.com/file/d/1B4oAgUX-30npT7AxZAzsElCW6QOJY1u3/view?usp=drive_link](https://drive.google.com/file/d/1B4oAgUX-30npT7AxZAzsElCW6QOJY1u3/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
